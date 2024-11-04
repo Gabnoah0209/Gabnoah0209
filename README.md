@@ -1,0 +1,7 @@
+- 👋 Sup? I'm Gabriel (commonly known as Noah)
+- 👀 I’m interested in Hacking
+- - 🌱 I’m currently learning School Basic progamming classes powered by Alura (programação paraná)
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: School email: g.ribeiro02@escola.pr.gov.br
+- 😄 Pronouns: he/hím or any
+- ⚡ Fun fact: Im autistic,  have ADHD and gifted intelligence 
